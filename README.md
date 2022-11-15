@@ -6,6 +6,10 @@ Stop fighting and angriness because life is short, time is fast and no repy or n
 Some difficulties come into your life do not to come to destroy you, but to help you to realise your potential and power.
 Your present situation no matter whatever it is, is not your final destination, keep calm the best things are yet to come.
 Trust for your customers, friends and suppliers mean everything, but when that trust is broken, then sorry for them means nothing.
+Never give up, your days are yet to come, just a matter of time.
+When you are helping others and expecting something in return, you are doing business, not kindness.
+Doing a business is not a joke, so never reply your customers or friends or suppliers when you are angry, never promise your customers or friends or suppliers with something when you are happy and never make decisions on whatever you to do when you are sad.
+Stop expecting loyalty from people who cannot even give you honesty. But nevertheless, remember that whenever you wish good things to others, good things come back to you.
 <!--
 **healthfirstbeforemoney-group/healthfirstbeforemoney-group** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -3,6 +3,8 @@ Never stop learning because life never stop teaching
 Show them your results, but never show them your plan because your results talk themselves to them
 Never cry for those who hurt you, just smile and say: thanks you for give me chance to find someone better than you
 Stop fighting and angriness because life is short, time is fast and repy or rewind; enjoy everything as it comes
+Difficulties come into your life do not to come to destroy you, but to help you to realise your potential and power
+Your present situation no matter whatever it is, is not your final destination, keep calm the best things are yet to come.
 
 <!--
 **healthfirstbeforemoney-group/healthfirstbeforemoney-group** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
